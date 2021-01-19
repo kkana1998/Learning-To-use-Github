@@ -1,4 +1,2 @@
 # Learning-To-use-Github
-
-
-Kya karu me mar jau!! meri koi feelings nahi hai
+Bas aise hi maze ke liye
